@@ -70,6 +70,10 @@ Tailor your gaming experience to perfection with our optimization software. From
 ![Preview](https://i.imgur.com/fTkWvOu.png)
 ![Preview](https://i.imgur.com/a4tDZzz.png)
 
+
+https://github.com/maijausery/aimbot/assets/154898362/e8ab3d30-7334-467a-939b-56ba9ce794d7
+
+
 # Important Information
 [![Alt текст](https://s3.timeweb.com/1f7344ba-1965520e-2817-4cbe-af09-45fc695f40be/buy.png)](https://t.me/go0d_games)
 
